@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sisayyoseph3@gmail.com**
 
-- ⚡ Fun fact **I am an international student and I haven't been back to my hometown for almost 4 years.**
+- ⚡ Fun fact **My Dad and I have a different last names.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
